@@ -1,5 +1,4 @@
-Klik link download Apk TiviMate yg ada dibawah ini
-https://simfile.co/gchco8ixjo/
+
 
 #EXTM3U 
 
